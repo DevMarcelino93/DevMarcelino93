@@ -24,7 +24,7 @@ Projetos em Destaque
 
  Conecte-se Comigo
 
- **LinkedIn:** [linkedin.com/in/marcelomarcelinodev](https://www.linkedin.com/in/marcelomarcelinodev)
+ **LinkedIn:** [linkedin.com/in/marcelomarcelinodev](https://github.com/DevMarcelino93/DevMarcelino93)
 
 
 
